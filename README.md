@@ -13,6 +13,3 @@
 
 ### https://s.click.aliexpress.com/e/_AkLHYi
 ![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-17_14-55-55.png)
-
-![Схема](https://github.com/White-SinSay/wdi-balkon/blob/main/images/PCB_layer_up.png)
-![Схема](https://github.com/White-SinSay/wdi-balkon/blob/main/images/PCB_layer_down.png)
