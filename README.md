@@ -13,3 +13,19 @@
 
 ### https://s.click.aliexpress.com/e/_AkLHYi
 ![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-17_14-55-55.png)
+
+Raspberry Pi 4 Model B Kit 2/4/8 ГБ ОЗУ
+https://s.click.aliexpress.com/e/_AkRTdm
+2021-07-20_09-39-00.png
+
+Корпус на DIN рейку для Raspberry Pi
+https://s.click.aliexpress.com/e/_ApTOou
+2021-07-20_09-40-13.png
+
+Wanptek Регулируемый источник питания постоянного тока 30 в 10 А
+https://s.click.aliexpress.com/e/_AaQDPS
+2021-07-20_09-41-23.png
+
+Паяльный фен JCD 8858
+https://s.click.aliexpress.com/e/_9fUPKo
+2021-07-20_09-44-08.png
