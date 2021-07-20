@@ -1,4 +1,4 @@
-#### https://s.click.aliexpress.com/e/_A7y6vY
+* [Разьемы](https://s.click.aliexpress.com/e/_A7y6vY)
 ![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-17_14-51-56.png)
 
 #### https://s.click.aliexpress.com/e/_986dT0
