@@ -25,3 +25,8 @@
 
 #### [Паяльный фен JCD 8858](https://s.click.aliexpress.com/e/_9fUPKo)
 ![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-20_09-44-08.png)
+
+#### [Датчик движения](https://s.click.aliexpress.com/e/_AdO0TQ)
+![картинка](
+![картинка](
+![картинка](
