@@ -27,6 +27,6 @@
 ![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-20_09-44-08.png)
 
 #### [Датчик движения](https://s.click.aliexpress.com/e/_AdO0TQ)
-![картинка](
-![картинка](
-![картинка](
+![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-22_10-44-53.png)
+![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-22_10-44-20.png)
+![картинка](https://github.com/White-SinSay/ali/blob/main/images/2021-07-22_10-44-32.png)
