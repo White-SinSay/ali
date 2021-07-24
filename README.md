@@ -26,5 +26,5 @@
 <a href="https://s.click.aliexpress.com/e/_ASiaXO" target="_blank"><img src="https://ae01.alicdn.com/kf/HLB1ntqtU3HqK1RjSZFPq6AwapXa1.jpg_140x140.jpg" /></a>
 <br>
 <a href="https://s.click.aliexpress.com/e/_Amkf6g" target="_blank"><img src="https://ae01.alicdn.com/kf/H0a68a9ea821147f6a5ebb3a881ba8e3aq.jpg_140x140.jpg" /></a>
-<a href="https://s.click.aliexpress.com/e/_9yzD08" target="_blank"><img src="https://ae01.alicdn.com/kf/H214069f9387844ed99f641a1b278fde6b.jpg_350x350.jpg" /></a>
+<a href="https://s.click.aliexpress.com/e/_9yzD08" target="_blank"><img src="https://ae01.alicdn.com/kf/H214069f9387844ed99f641a1b278fde6b.jpg_140x140.jpg" /></a>
 <br>
