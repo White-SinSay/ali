@@ -26,11 +26,7 @@
 <a href="https://s.click.aliexpress.com/e/_Amkf6g" target="_blank"><img src="https://ae01.alicdn.com/kf/H0a68a9ea821147f6a5ebb3a881ba8e3aq.jpg_140x140.jpg" /></a>
 <a href="https://s.click.aliexpress.com/e/_9yzD08" target="_blank"><img src="https://ae01.alicdn.com/kf/H214069f9387844ed99f641a1b278fde6b.jpg_140x140.jpg" /></a>
 <br>
-Подшипники 625ZZ
-https://s.click.aliexpress.com/e/_AT4bhi
-
-Шаговый мотор
-https://s.click.aliexpress.com/e/_9ywRJe
-
-Болтики
-https://aliexpress.ru/item/32966917947.html
+<a href="https://s.click.aliexpress.com/e/_AZojqM" target="_blank"><img src="https://ae01.alicdn.com/kf/Haa7d713ce2fa46379856e2efd082d435b.jpg_140x140.jpg" /></a>
+<a href="https://s.click.aliexpress.com/e/_9iItEy" target="_blank"><img src="https://ae01.alicdn.com/kf/HTB1PZkeKgmTBuNjy1Xbq6yMrVXaD.jpg_140x140.jpg" /></a>
+<a href="https://s.click.aliexpress.com/e/_9IDOmC" target="_blank"><img src="https://ae01.alicdn.com/kf/H0ce2c1672bee42f9ad1d9a67e97d5453D.jpg_140x140.jpg" /></a>
+<a href="https://s.click.aliexpress.com/e/_9um884" target="_blank"><img src="https://ae01.alicdn.com/kf/H8aec850c99234962b3f64c8badbe5fe93.jpg_140x140.jpg" /></a>
