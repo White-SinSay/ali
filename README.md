@@ -39,7 +39,7 @@
 
 <a href="https://s.click.aliexpress.com/e/_A0Wcv8" target="_blank"><img src="https://ae01.alicdn.com/kf/H7419fa857bf946c3b1513748bffd4aa1b.jpg_140x140.jpg" /></a>
 <a href="https://s.click.aliexpress.com/e/_Aa5nfU" target="_blank"><img src="https://ae01.alicdn.com/kf/H9b86f6e34a6b416d892ec8f21af738d3z.jpg_140x140.jpg" /></a>
-<a href="https://s.click.aliexpress.com/e/_AmtrAa" target="_blank"><img src="https://github.com/White-SinSay/ali/blob/main/images/index.png" /></a>
+<a href="https://s.click.aliexpress.com/e/_AmtrAa" target="_blank"><img src="https://github.com/White-SinSay/ali/blob/main/images/index-140.png" /></a>
 <a href="https://s.click.aliexpress.com/e/_9fObNY" target="_blank"><img src="https://ae01.alicdn.com/kf/H3cfcddb2ed9440d4a99675d82bca4995S.jpg_140x140.jpg" /></a>
 <a href="https://s.click.aliexpress.com/e/_ASdSeW" target="_blank"><img src="https://ae01.alicdn.com/kf/H657e089d2fa3486bb6bb9b2611e9de2fG.jpg_140x140.jpg" /></a>
 <a href="https://s.click.aliexpress.com/e/_97xcNM" target="_blank"><img src="https://ae01.alicdn.com/kf/H6a124dc20a3d40e0a298329e3bc63d2aL.jpg_140x140.jpg" /></a>
